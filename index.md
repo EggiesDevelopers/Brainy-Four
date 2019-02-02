@@ -1,4 +1,4 @@
-## Privacy Policy
+## Privacy Policy For Eggies
 
 Eggies developers built these apps as an Ad Supported app. This SERVICE is provided by Eggies developers at no cost and is intended for use as is.
 
